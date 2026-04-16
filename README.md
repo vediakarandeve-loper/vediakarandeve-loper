@@ -3,7 +3,6 @@
 
 Email Me 👉 ✉️ **vediakaran93@gmail.com** 😊😊
 
-- 🔭 **I’m currently working on:** Enter your project info here
 - 🌱 **I’m currently learning:** Bsc CS-IT (sem-2)
 - 📫 **How to reach me:** vediakaran93@gmail.com
 - ⚡ **Fun fact:** I Love Tech and Tech Love Me

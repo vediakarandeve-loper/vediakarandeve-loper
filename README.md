@@ -1,5 +1,5 @@
 # 💫 Hi 👋, I'm Vedia Karan
-**A Web Developer ||  BSc CS-IT(Sem-2) Student || Aspiring Full Stack Developer**
+**A Web Developer ||  BSc CS-IT Student || Aspiring Full Stack Developer**
 
 Email Me 👉 ✉️ **vediakaran93@gmail.com** 😊😊
 
